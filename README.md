@@ -1,0 +1,2 @@
+# premium-folding-knife-001-folding-knife-making-pivot-l
+Tired of wobbly blades and frustrating lock failures? Stop guessing and start crafting folding knives with a pivot lock mechanism that feels like a custom heirloom.  This guide demystifies the pivot lock—the most critical and finicky part of folding knife making. You'll get step-by-step instructions for achieving perfect blade centering, smooth act
